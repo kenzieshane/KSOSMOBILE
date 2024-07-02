@@ -1,0 +1,1 @@
+I can't track a license. but Modern Sans is available through dafont.com and made bya an user called Fortress Tech in which dafont.com said 100% free. I've search through other websites too to no avail. 
